@@ -1,0 +1,1 @@
+<big><b>Felicidades se a creado con exito su cuenta</b></big>
